@@ -7,6 +7,7 @@
 ## Tactics
 
 [Do Marxists oppose individual terrorism? (Trotsky)](https://www.marxists.org/archive/trotsky/1911/11/tia09.htm)
+[The Philosophy of Antifa (Video - Philosophy Tube)](https://www.youtube.com/watch?v=bgwS_FMZ3nQ)
 
 
 ## Branches
